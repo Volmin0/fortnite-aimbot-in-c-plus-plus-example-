@@ -1,0 +1,1 @@
+I am not responsible for anyone or any of your actions by using this code you agree that You will only use it for educational purposes only,  and again I'm not, responsible for any of your actions I posted this code so you could see a real life example of a fortnite aimbot.
